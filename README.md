@@ -1,5 +1,5 @@
-# Calculatrice-By-Ayman
+# Calculatrice By Ayman
 
-# Im-Making-This-App-For-You-Yeah-For-You
+# Im Making This App-For You Yeah For You
 
 # Now
